@@ -1,0 +1,1 @@
+![A cool map](https://upload.wikimedia.org/wikipedia/commons/8/8a/Mortier%2C_Situation_du_Paradise_Terrestre%2C_1700_Cornell_CUL_PJM_1014_01.jpg)
